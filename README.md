@@ -31,7 +31,7 @@ As a Solution Architect, I specialize in:
 
 ## 🌐 Where to Find Me
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile](https://www.linkedin.com/in/christian-gebler-04b57020b/) – Let’s connect professionally!  
+- 💼 [LinkedIn](https://www.linkedin.com/in/christian-gebler-04b57020b) – Let’s connect professionally!  
 - 🌍 [XING](https://www.xing.com/profile/Christian_Gebler4) – For more about me and the work I do.  
 
 ---
